@@ -1,7 +1,9 @@
+
+
 INGREDIENTS
-Meat
++Meat
   1 (4 pound) chicken
-Bread
++Bread
 1 ½ cup diced crusty bread
 Vegetable
   1 tablespoon minced garlic + 1 head of garlic

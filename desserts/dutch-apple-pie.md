@@ -20,10 +20,10 @@ Ingredients
 
 Topping
 
-+ 3/4 cup flour
-+ 1/4 cup granulated sugar
-+ 1/4 cup brown sugar, packed
-+ 1/3 cup butter or 1/3 cup margarine, room temperature
++ 5/4 cup flour
++ 3/4 cup granulated sugar
++ 3/4 cup brown sugar, packed
++ 2/3 cup butter or 1/3 cup margarine, room temperature
 
 Directions
 ---------

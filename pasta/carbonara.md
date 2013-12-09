@@ -1,17 +1,44 @@
-CARBONARA
-
 [1]: http://www.aveceric.com/carbonara/
 
-
+Carbonara
+==========
 Smoked bacon lardons and egg yolks mixed with, not cream as in the classic recipe, but rather crème fraiche give this sauce a bit of tanginess to compliment the richness. The sliced chives provide a subtle flavor from the onion family.
 
-DIRECTIONS
-Bring a large pot of water to a boil over high heat with salt.
+> Notes:
 
-To make the sauce, sauté the bacon over medium-low heat until crisp. Add the crème fraîche and bring to a simmer. Whisk the egg yolks into the sauce, add the black pepper and season to taste with salt. Reserve.
++ Yield:
++ Time:
 
-When ready to serve, cook the pasta in the boiling salted water to al dente. Drain the pasta.
+Ingredients
+---------
+1. ½ cup sliced apple wood
+   smoked bacon, cut into ¼
+   inch wide lardons
+2. 2 cups crème fraîche
+3. 2 egg yolks
+4. 1 teaspoon freshly ground
+5. black pepper
+6. fine sea salt
+7. 4 tablespoons fresh thinly sliced chives
+8. 1½ cups freshly grated Parmesan cheese
+9. 8 ounces dried linguini
 
-Add the pasta to the sauce and stir in the chives and parmesan; let everything sit for one minute to properly absorb all of the flavors.
+Directions
+---------
+1. Bring a large pot of water to a boil over high heat with salt.
 
-Using a meat fork, twirl a quarter of the pasta and place it in the center of each of four bowls, spoon some of the sauce and garnish over and around the pasta, top with more grated Parmesan as desired and serve immediately.
+Sauce
+
+2. To make the sauce, sauté the bacon over medium-low heat until crisp. 
+3. Add the crème fraîche and bring to a simmer. 
+4. Whisk the egg yolks into the sauce, 
+5. Add the black pepper and season to taste with salt. Reserve.
+
+Serve
+
+6. Add the pasta to the sauce and stir in the chives and parmesan
+7. Let everything sit for one minute to properly absorb all of the flavors.
+
+Tips
+----------
+1.

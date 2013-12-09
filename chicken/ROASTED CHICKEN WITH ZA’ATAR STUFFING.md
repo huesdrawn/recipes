@@ -48,3 +48,20 @@ SERVE
 2. Run the carving knife down one side of the breast bone and continue by following the ribcage, lifting the breast meat away from the bone. 
 3. Slice the breast meat and leg meat. 
 4. Serve 2 slices of each with some of the stuffing on a plate. Spoon some of the drippings over the chicken and serve immediately.
+
+Lessons learned:
+----------
+
+Cooking
+
+1. Ugly side up first
+2. Oil the chicken when you flip it
+3. Don't forget the garlic, post flip
+
+Stuffing
+
+1. 2 pieces of bread toasted is the perfect amount for a "frier" (4lb. chicken)
+2. Make extra for some crispy stuffing and some moist stuffing
+
+Results
+1. 

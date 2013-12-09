@@ -9,6 +9,8 @@ New
 - [Easy Parmesan Knots][7]
 - [Strawberry Margarita Jello Shots][8]
 - [Fancy Pink Lemonade Jello Shots][9]
+- [Classic Roasted Chicken w Za'atar Stuffing] [10]
+- [Pasta Carbonara] [11]
 
 Previously made
 ----------
@@ -30,4 +32,5 @@ Perfected
 [8]: drinks/strawberry-margarita-jello-shots.md
 [9]: drinks/fancy-pink-lemonade-jello-shots.md
 [10]: chicken/ROASTED CHICKEN WITH ZA’ATAR STUFFING.md
-[11]:
+[11]: pasta/carbonara.md
+

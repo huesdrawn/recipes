@@ -33,4 +33,5 @@ Perfected
 [9]: drinks/fancy-pink-lemonade-jello-shots.md
 [10]: chicken/ROASTED-CHICKEN-WITH-ZA’ATAR-STUFFING.md
 [11]: pasta/carbonara.md
+[12]: root-vegetables/roasted-pumpkin.md
 

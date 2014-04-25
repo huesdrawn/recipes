@@ -1,9 +1,9 @@
 [1]: http://
 
-Had a giant pumpking after halloween.
-
-Recipe name
+Roasted Pumpkin
 ==========
+Had a giant pumpkin after halloween. Decided to break it down and use it.
+
 > Notes:
 
 + Yield:
